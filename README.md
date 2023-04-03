@@ -1,7 +1,9 @@
 ~~白嫖真香~~
 
-[好van的](https://pingguo114514.github.io/rr)
+[好van的](https://pingguo.cf/rr)
 
-[cxk](https://pingguo114514.github.io/cxk)
+[cxk](https://pingguo.cf/cxk)
 
-[v我50](https://pingguo114514.github.io/v50)
+[v我50](https://pingguo.cf/v50)
+
+[114514](https://pingguo.cf/114514)
